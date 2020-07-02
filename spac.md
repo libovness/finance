@@ -1,4 +1,4 @@
-What is a SPAC?
+What does SPAC stand for?
 
 ---
 
